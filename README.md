@@ -1,0 +1,7 @@
+REAL SOURCE CODE FROM POPULAR GAMES PROVIDER PRAGMATIC PLAY WITH 100+ GAMES
+
+YOU CAN SIMPLY INSTALL IT TO YOUR WEBSITE. THE FILES SIZE IS 2.74GB
+
+TELEGRAM: https://t.me/atrxgames
+
+Screenshots![Screenshot_1](https://github.com/JoeBrovo/pragmaticplaysourcecode/assets/99754914/fa607aaa-f077-4b33-97e9-d81f4ba91241)
